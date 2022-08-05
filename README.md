@@ -1,1 +1,1 @@
-# apple seedling of 'Yanfu6', 'Yanfu8', 'Qincui', and 'Ruixue' images
+# apple seedling images of 'Yanfu6', 'Yanfu8', 'Qincui', and 'Ruixue'
